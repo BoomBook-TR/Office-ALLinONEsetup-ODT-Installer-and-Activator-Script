@@ -1,1 +1,1 @@
-# Office-ALLinONEsetup-ODT-Installer
+# Office-ALLinONEsetup-ODT-Installer-Activator-Script
